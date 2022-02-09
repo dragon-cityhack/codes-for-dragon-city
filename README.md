@@ -25,7 +25,8 @@ Gold is used to buy buildings, tools, armor, etc. You can only have one of each 
 
 [***GO TO: BARLOG.ORG/DC  - Get Unlimited Gems, Gold & Food Generator! CLICK HERE!***](https://barlog.org/dc)
  
-What is Dragon City Hack?
+ 
+***What is Dragon City Hack?***
 
 Dragon City Hack is an online tool that provides its users with the opportunity to hack their account in order to get free diamonds. This online tool will enable you to hack your own account and get free diamonds on your account without doing anything. This is a really convenient online tool that provides its users with access to many features that other tools don’t have.
 
